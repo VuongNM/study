@@ -1,4 +1,3 @@
 "In the first stage, studies, pensieri, small-scale wax or clay models. They could be altered or revised."
 
-Michelangelo on Effort and Rapidity in Art
-Author(s): Robert J. Clements
+in Michelangelo on Effort and Rapidity in Art, by Robert J. Clements
